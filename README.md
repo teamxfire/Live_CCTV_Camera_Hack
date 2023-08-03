@@ -33,7 +33,7 @@ Remember :- This App Made For Educational Purpose Only. Don't Use Any Iligel Act
 </p>
 
 
-The use of the fake Bkash Prank App Tool is COMPLETE RESPONSIBILITY of the END-USER. Developers assume NO liability and are NOT responsible for any misuse or damage caused by this program..
+The use of the LIVE CCTV CAMERA HACK App Tool is COMPLETE RESPONSIBILITY of the END-USER. Developers assume NO liability and are NOT responsible for any misuse or damage caused by this program..
 
 
 
